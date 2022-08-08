@@ -1,0 +1,2 @@
+# Qodir_ali
+Qodirali
